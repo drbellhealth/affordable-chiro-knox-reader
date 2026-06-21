@@ -1,1 +1,0 @@
-# affordable-chiro-knox-reader
